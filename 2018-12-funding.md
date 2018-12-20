@@ -2,6 +2,8 @@
 
 https://www.edsurge.com/news/2018-12-19-lumen-learning-quietly-raises-5m-from-textbook-publisher-follett
 
+https://www.edsurge.com/news/2018-12-20-seven-questions-for-sandra-liu-huang-chan-zuckerberg-s-new-head-of-education (some grants listed)
+
 https://www.edsurge.com/news/2018-12-18-titan-raises-5-2m-in-series-a-to-scale-its-school-nutrition-solution
 
 https://www.edsurge.com/news/2018-12-19-kahoot-earns-a-376m-valuation-after-disney-investment-and-is-looking-to-acquire
