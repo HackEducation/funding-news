@@ -1,5 +1,7 @@
 ## December 2018 Funding News
 
+https://www.edsurge.com/news/2018-12-20-act-acquires-oer-curator-knovation
+
 https://www.edsurge.com/news/2018-12-19-lumen-learning-quietly-raises-5m-from-textbook-publisher-follett
 
 https://www.edsurge.com/news/2018-12-20-seven-questions-for-sandra-liu-huang-chan-zuckerberg-s-new-head-of-education (some grants listed)
