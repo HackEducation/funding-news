@@ -1,5 +1,7 @@
 ## December 2018 Funding News
 
+https://techcrunch.com/2018/12/22/juul-me-twice-shame-on-you/
+
 https://www.edsurge.com/news/2018-12-20-act-acquires-oer-curator-knovation
 
 https://www.edsurge.com/news/2018-12-19-lumen-learning-quietly-raises-5m-from-textbook-publisher-follett
