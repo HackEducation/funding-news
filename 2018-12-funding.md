@@ -1,5 +1,7 @@
 ## December 2018 Funding News
 
+https://www.edsurge.com/news/2018-12-24-digital-reading-platform-simbi-raises-460k-in-seed-funding
+
 https://techcrunch.com/2018/12/22/juul-me-twice-shame-on-you/
 
 https://www.edsurge.com/news/2018-12-20-act-acquires-oer-curator-knovation
